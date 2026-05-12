@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with new NFT Sniper for nft mint bot | rarity-analysis & trailing-stop, the #1 nft mint bot. Includes rarity-analysis and trailing-stop for a faster and
 
 
 
